@@ -1,16 +1,17 @@
-### Hi there 👋
+##### No your language?→[Microsoft Translate](https://bing.com/translator/)
 
-<!--
-**xiao-chopin/xiao-chopin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+### 你好
 
-Here are some ideas to get you started:
+这里是萧邦,高中生一个.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+我的主页→[访问](https://home-chopin.xyz)
+
+我的博客→[访问](https://blog.home-chopin.xyz)
+
+奇妙链接→[这个不要啊](https://vdse.bdstatic.com//192d9a98d782d9c74c96f09db9378d93.mp4)
+
+>戳啦,事学生嘛(
+
+#### 限时发福利↓
+
+![adnmb_50460643-50949371.jpg](https://s2.loli.net/2022/08/16/6mNqMfVGeAIyus2.jpg)
