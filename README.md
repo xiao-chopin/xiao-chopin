@@ -1,5 +1,7 @@
 ##### No your language?→[Microsoft Translate](https://bing.com/translator/)
 
+[![我的 GitHub 数据](https://github-readme-stats.vercel.app/api?username=xiaochopin&show_icons=true&theme=radical)]
+
 ### 你好
 
 这里是萧邦,高中生一个.
