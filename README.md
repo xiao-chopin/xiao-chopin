@@ -6,7 +6,7 @@
 
 这里是萧邦,高中生一个.
 
-我的博客→[访问](https://home-chopin.xyz)
+我的博客→[访问](https://xiaochopin.github.io)
 
 奇妙链接→[这个不要啊](https://vdse.bdstatic.com//192d9a98d782d9c74c96f09db9378d93.mp4)
 
